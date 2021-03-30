@@ -3,11 +3,11 @@
 
 
 
-- 🔭 I’m currently a student at Code Acamdemy Berlin 
+- 🎓 I’m currently a student at Code Acamdemy Berlin 
 
-- 🌱 I’m currently learning React.js
+- 💻 I’m currently learning React.js
 
-- 👯 I’m looking to collaborate on any Project, just hit me up ✌🏽
+- 🧗 I’m looking to collaborate on any Project, just hit me up ✌🏽
 
 - 💬 Ask me about anything related to Websites or Life 😁
 
