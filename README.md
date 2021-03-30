@@ -3,7 +3,7 @@
 
 
 
-- 🔭 I’m currently working on my Coding Skills 
+- 🔭 I’m currently a student at Code Acamdemy Berlin 
 
 - 🌱 I’m currently learning React.js
 
