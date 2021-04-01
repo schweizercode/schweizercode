@@ -4,8 +4,6 @@
 
 - 🎓 current Student at Code Acamdemy Berlin 
 
-- 💻 learning React.js
-
 - 🇦🇺 lived in Australia for over 4 Years
 
 - 💬 Studied Leadership & Songwriting 
