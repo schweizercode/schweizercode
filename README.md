@@ -18,4 +18,8 @@
 
 - 📫 How to reach me: schweizercode@gmail.com
 
+- 🧳 Languages: 🇩🇪 🇦🇺 🇷🇺 (🇪🇸)
+
 - ⭐️ Life theme: Just freaking go for it!
+
+
