@@ -2,15 +2,20 @@
 
 
 
+- 🎓 current Student at Code Acamdemy Berlin 
 
-- 🎓 I’m currently a student at Code Acamdemy Berlin 
+- 💻 learning React.js
 
-- 💻 I’m currently learning React.js
+- 🇦🇺 lived in Australia for over 4 Years
 
-- 🧗 I’m looking to collaborate on any Project, just hit me up ✌🏽
+- 💬 Studied Leadership & Songwriting 
 
-- 💬 Ask me about anything related to Websites or Life 😁
+- 🎧 PRE-COVID DJ: played seamless events all Across 🇦🇺 🇺🇸 & 🇩🇪
+
+- 🎹 5 years of experience in Audio Production, Composing & Recording
+
+- 🌏 4 years + Experience in Managing and Leading teams across multiple sectors
 
 - 📫 How to reach me: schweizercode@gmail.com
 
-- ⚡ Fun fact: The best place in the world to see rainbows is in Hawaii.
+- ⭐️ Life theme: Just freaking go for it!
