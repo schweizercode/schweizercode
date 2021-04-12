@@ -10,9 +10,9 @@
 
 - 🎧 PRE-COVID DJ: played seamless events all Across 🇦🇺 🇺🇸 & 🇩🇪
 
-- 🎹 5 years of experience in Audio Production, Composing & Recording
+- 🎹  5 years of experience in Audio Production, Composing & Recording
 
-- 🌏 4 years + Experience in Managing and Leading teams across multiple sectors
+- 🌏  4 years + Experience in Managing and Leading teams across multiple sectors
 
 - 📫 How to reach me: schweizercode@gmail.com
 
