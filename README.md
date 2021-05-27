@@ -7,16 +7,15 @@
 
 - 🇦🇺 lived in Australia for over 4 Years
 
-- 💬 Studied Leadership & Songwriting 
+- 💬 Studied Leadership
 
 - 🎧 PRE-COVID DJ: played seamless events all Across 🇦🇺 🇺🇸 & 🇩🇪
 
 - 🎹  5 years of experience in Audio Production, Composing & Recording
 
-- 📫 How to reach me: schweizercode@gmail.com
-
 - 🧳 Languages: 🇩🇪 🇦🇺 🇷🇺 (🇪🇸)
 
 - ⭐️ Life theme: Just freaking go for it!
 
+- 📫 How to reach me: schweizercode@gmail.com
 
