@@ -2,7 +2,7 @@
 
 
 
-- 🎓 current Student at Code Acamdemy Berlin 
+- 🎓 former Student at Code Acamdemy Berlin 
 
 - 🇦🇺 lived in Australia for over 4 Years
 
