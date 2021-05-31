@@ -13,7 +13,7 @@
 
 - 🎹  5 years of experience in Audio Production, Composing & Recording
 
-- 🧳 Languages: 🇩🇪 🇦🇺 🇷🇺 (🇪🇸)
+- 🧳 Languages: 🇩🇪 🇦🇺 🇷🇺 
 
 - ⭐️ Life theme: Just freaking go for it!
 
