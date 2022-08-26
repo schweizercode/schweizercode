@@ -3,7 +3,7 @@
 
 - 🌏  5 years + Experience in Managing and Leading teams across multiple sectors
 
-- 🎓 former Student at Code Acamdemy Berlin 
+- 🎓 former Student at Code Academy Berlin 
 
 - 🇦🇺 lived in Australia for over 4 Years
 
