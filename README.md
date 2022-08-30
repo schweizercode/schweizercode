@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🌏  5 years + Experience in Managing and Leading teams across multiple sectors
+- 🌏  5 years + Experience in Managing and Leading Teams across multiple sectors
 
 - 🎓 former Student at Code Academy Berlin 
 
@@ -19,3 +19,4 @@
 
 - 📫 How to reach me: schweizercode@gmail.com
 
+- 👨🏼‍💻 Developed and Coded the Software for Intellyscale: https://intellyscale.com/
