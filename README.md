@@ -6,6 +6,7 @@
 - 🎓 former Student at Code Academy Berlin 
 
 - 👨🏼‍💻 Developed and Coded the Software for Intellyscale: https://intellyscale.com/
+(Repo on GitLab not visible to the public)
 
 - 🇦🇺 lived in Australia for over 4 Years
 
