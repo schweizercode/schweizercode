@@ -5,6 +5,8 @@
 
 - 🎓 former Student at Code Academy Berlin 
 
+- 👨🏼‍💻 Developed and Coded the Software for Intellyscale: https://intellyscale.com/
+
 - 🇦🇺 lived in Australia for over 4 Years
 
 - 💬 Studied Organisational Leadership
@@ -19,4 +21,3 @@
 
 - 📫 How to reach me: schweizercode@gmail.com
 
-- 👨🏼‍💻 Developed and Coded the Software for Intellyscale: https://intellyscale.com/
