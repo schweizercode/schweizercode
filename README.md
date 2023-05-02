@@ -5,19 +5,6 @@
 
 - 🎓 former Student at Code Academy Berlin 
 
-- 👨🏼‍💻 Developed and Coded the Software for Intellyscale: https://intellyscale.com/
-(Repo on GitLab not visible to the public)
-
-- 🇦🇺 lived in Australia for over 4 Years
-
-- 💬 Studied Organisational Leadership
-
-- 🎧 DJ: played seamless events all Across 🇦🇺 🇺🇸 & 🇩🇪
-
-- 🎹  5 years of experience in Audio Production, Composing & Recording
-
-- 🧳 Languages: 🇩🇪 🇦🇺 🇷🇺 
-
 - ⭐️ Life theme: Just freaking go for it!
 
 - 📫 How to reach me: schweizercode@gmail.com
